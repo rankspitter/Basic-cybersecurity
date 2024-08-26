@@ -1,2 +1,1 @@
-this lecture from obsidian
-If u want to learn from this pls dowload obsidian https://obsidian.md/
+โน้ตทั้งหมดจดจากโปรแกรมนี้ https://obsidian.md/ โหลดมาก่อนค่อยเปิดอ่านนะครับ
